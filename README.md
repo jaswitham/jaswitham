@@ -11,15 +11,15 @@
 
 - 🤝 I’m looking for help with **figuring out what i should be learning**
 
-- ✍️ A Fusion360 project I worked on [https://drive.google.com/drive/folders/1qGI0yb_PpbGXVjel8CNJHjygx8wuNG_x?usp=sharing](https://drive.google.com/drive/folders/1qGI0yb_PpbGXVjel8CNJHjygx8wuNG_x?usp=sharing)
+- ✍️ A Fusion360 project I worked on: [https://drive.google.com/drive/folders/1qGI0yb_PpbGXVjel8CNJHjygx8wuNG_x?usp=sharing](https://drive.google.com/drive/folders/1qGI0yb_PpbGXVjel8CNJHjygx8wuNG_x?usp=sharing)
 
 - 💬 Ask me about **movies! books!**
 
-- 📫 How to reach me **jaswithareddy10@gmail.com**
+- 📫 How to reach me: **jaswithareddy10@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1OX9XZdJm-qbgy6atSk-BOuZXtAG7gVOlztsOmdp_sb8/edit?usp=sharing](https://docs.google.com/document/d/1OX9XZdJm-qbgy6atSk-BOuZXtAG7gVOlztsOmdp_sb8/edit?usp=sharing)
+- 📄 Know about my experiences: [https://docs.google.com/document/d/1OX9XZdJm-qbgy6atSk-BOuZXtAG7gVOlztsOmdp_sb8/edit?usp=sharing](https://docs.google.com/document/d/1OX9XZdJm-qbgy6atSk-BOuZXtAG7gVOlztsOmdp_sb8/edit?usp=sharing)
 
-- ⚡ Fun fact **I can sleep for 20 hours straight.**
+- ⚡ Fun fact: **I can sleep for 20 hours straight.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
